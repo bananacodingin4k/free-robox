@@ -1,3 +1,0 @@
-# DINO
-DINO GAME
-joemama
